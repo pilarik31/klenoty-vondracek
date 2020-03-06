@@ -1,0 +1,1 @@
+# klenoty-vondracek.cz
